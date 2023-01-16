@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-This is an another account for me, visit the latest username to location to [ruxf](https://github.com/ruxf).
+This is an another account for me, visit the latest username to location to [hom](https://github.com/hom).
 
 ![](https://camo.githubusercontent.com/ab5d47d39c998060101025da9263567c8ada85eadf295268ec96ac5b13cef5ea/68747470733a2f2f747661312e73696e61696d672e636e2f6c617267652f30303753385a496c6c793167676d733636726967386a33316269306863676f6c2e6a7067)
 
